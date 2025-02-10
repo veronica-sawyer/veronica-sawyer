@@ -1,6 +1,7 @@
+<p align="center">
+  <img width="100" src=https://64.media.tumblr.com/fb1564764cb98a1d2f58f5aeb00e32a0/61abe78a89c61ee5-2b/s250x400/2530d54d052f5a6264ae971f198727c966eba3dd.pnj>
+</p>
 
-- hi . im veronica but i don't really care what you call me at all
-- avoid she/her ; heavy he/they/it preference
-- usually alone but ok with c+h ; please whisper me
-- if not alone i'll usually be with citrus , my qpp
-    
+<p align="center">
+<strong>veronica</strong> , or whatever you know me as
+</p>
