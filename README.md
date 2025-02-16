@@ -1,8 +1,7 @@
 <p align="center">
-  <img width="100" src=https://64.media.tumblr.com/fb1564764cb98a1d2f58f5aeb00e32a0/61abe78a89c61ee5-2b/s250x400/2530d54d052f5a6264ae971f198727c966eba3dd.pnj>
+  <img width="100" src=https://64.media.tumblr.com/ef9263cd3599d9d6706db786dc0a20cb/69c2dc125ccf367b-af/s500x750/512c0426d0c3a63d4ccc46ebfb60b5b45f054562.pnj>
 </p>
 
-----
 
 <p align="center">
 <strong>veronica</strong> , or whatever you know me as<br>
