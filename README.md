@@ -7,8 +7,8 @@
 <p align="center">
 <strong>veronica</strong> , or whatever you know me as<br>
 minor , c+h okay & heavy w2i preference<br>
-usually with star and citrus , <strong>or</strong> alone in osc<br>
-<strong>bad</strong> at keeping friends but i really need them :-(<br>
-usually busy touching grass but i'm on pt when i can be<br>
+usually alone in osc feel free to talk to me<br>
+extremely ill about heathers someone help me<br>
+we are the sawyerlings please feed us<br>
 </p>
 
