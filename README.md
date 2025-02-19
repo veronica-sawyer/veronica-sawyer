@@ -7,7 +7,6 @@
 <strong>veronica</strong> , or whatever you know me as<br>
 minor , c+h okay & heavy w2i preference<br>
 usually alone in osc feel free to talk to me<br>
-extremely ill about heathers someone help me<br>
-we are the sawyerlings please feed us<br>
+veronica sawyer + min-su fictkin :-)<br>
 </p>
 
