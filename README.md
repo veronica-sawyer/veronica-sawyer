@@ -4,10 +4,10 @@
 
 
 <p align="center">
-<strong>veronica</strong> , or whatever you know me as<br>
+veronica , min-su , myung-gi , or whatever<br>
 minor , c+h okay & heavy w2i preference<br>
 usually alone in osc feel free to talk to me<br>
 veronica sawyer + min-su fictkin :-)<br>
-( and unlisted )<br>
+( and unlisted / questioning )<br>
 </p>
 
